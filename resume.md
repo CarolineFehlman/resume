@@ -6,7 +6,6 @@ Caroline Fehlman
 <h4 align="center" >
 Undergraduate Student Researcher <br> Appalachian State Univeristy
 
-
 E-mail: fehlmanca@appstate.edu
 
 [Linkedin](https://www.linkedin.com/in/carolinefehlman/)
