@@ -11,7 +11,7 @@ E-mail: fehlmanca@appstate.edu
 
 </h4>
 
-[Linkedin](www.linkedin.com/in/carolinefehlman)
+[Linkedin](linkedin.com/in/carolinefehlman)
 
 Academic & Career Goals
 ---
