@@ -9,10 +9,10 @@ Undergraduate Student Researcher <br> Appalachian State Univeristy
 
 E-mail: fehlmanca@appstate.edu
 
+[Linkedin](https://www.linkedin.com/in/carolinefehlman/)
+
 </h4>
 
-
-[Linkedin](https://www.linkedin.com/in/carolinefehlman/)
 
 Academic & Career Goals
 ---
