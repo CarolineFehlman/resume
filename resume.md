@@ -5,12 +5,12 @@ Caroline Fehlman
 
 <h4 align="center" >
 Undergraduate Student Researcher <br> Appalachian State Univeristy
+</h4>
 
-E-mail: fehlmanca@appstate.edu
-
+##### Contact:
+E-mail: fehlmanca@appstate.edu <br> 
 [Linkedin](https://www.linkedin.com/in/carolinefehlman/)
 
-</h4>
 
 
 Academic & Career Goals
